@@ -1,1 +1,1 @@
-!([url](https://tenor.com/ru/view/pixel-stonks-gif-25247032)https://tenor.com/ru/view/pixel-stonks-gif-25247032)
+![Alt Text](https://media.tenor.com/rW9-E34ApowAAAAC/pixel-stonks.gif)https://media.tenor.com/rW9-E34ApowAAAAC/pixel-stonks.gif)
