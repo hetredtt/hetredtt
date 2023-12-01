@@ -1,1 +1,1 @@
-![Alt Text](https://media.tenor.com/rW9-E34ApowAAAAC/pixel-stonks.gif)https://media.tenor.com/rW9-E34ApowAAAAC/pixel-stonks.gif)
+![Alt Text](https://media.tenor.com/rW9-E34ApowAAAAC/pixel-stonks.gif)
